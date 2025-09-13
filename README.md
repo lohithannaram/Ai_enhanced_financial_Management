@@ -1,1 +1,1 @@
-Ai_enhanced_financial_Mnangement
+Ai_enhanced_financial_Management
